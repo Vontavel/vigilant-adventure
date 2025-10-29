@@ -1,0 +1,1 @@
+"Vigilant-adventure" likely refers to two different things: the popular VIGILANT mod for the game The Elder Scrolls V: Skyrim, which is a massive questline and adventure, and a tabletop RPG ruleset called Vigilant that offers a "lethal" and "vigilant" style of adventure. There is also a less common Minecraft mod sometimes named "vigilant-adventure"
